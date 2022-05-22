@@ -1,0 +1,2 @@
+# Namanganliklar
+mengnorov
